@@ -7,4 +7,4 @@ Sparkles of dust and glitters or a little bee?
 Nothing of such! 
 
 As the rain begins to shower,
-Remember I am not a sunflower, I am the Sunflower
+Remember I am not a sunflower, I am the Sunflower.
